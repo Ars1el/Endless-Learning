@@ -10,7 +10,7 @@ https://drive.google.com/drive/folders/16fL5rI1M7ia9zZA_5NRjZLyo5quiPDlY
 https://ru.yougile.com/team/ea9a0f3b81c6/Endless-Learning#END-6
 
 # Презентация
-
+https://docs.google.com/presentation/d/1oSGwPlomqYwikIA2tzWOtnwrLjpfvpA7/edit?usp=drive_link&ouid=112398175573498733926&rtpof=true&sd=true
 
 # Сценарий
 https://drive.google.com/drive/folders/1KidvHCu3CJ_zcELdkQRSv3WEwvT3ywRq
